@@ -1,2 +1,2 @@
-i dont even know anymore i removed everything since ppl keep being pissy about it iwec at ALL times
-16+ DNI PLEASE
+
+16+ dni , homeowner x anyone dni , spmtenna shippers dni
