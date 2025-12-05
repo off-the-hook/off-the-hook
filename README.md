@@ -3,12 +3,16 @@
 
 list of fandoms : ( ones marked as ⭐️ im currently hyperfixated on !
 
-3008 ⭐️
+3008
 
 dandys world⭐️
 
-ninah
+ninah⭐️
 
 touhou
 
-and thats it... 😢😢
+splatoon
+
+acnh
+
+and thats it...
