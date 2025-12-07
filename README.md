@@ -1,2 +1,27 @@
 
-                                                                 ![image](https://github.com/user-attachments/assets/46e698bb-3109-49e7-b562-e62239477887)
+																	 💿 --- ” 16+ dni , kin doubles dni , homeowner x anyone dni. ” --- 💿
+                                          ------------------------ 📺-------------------------
+                                                                fandoms ! 
+																								  (ones marked ⭐️ i'm hyperfixating on!)
+																									
+                                                                  ninah
+
+																														   regretevator
+																													
+																										            meleeniacs⭐️
+
+																																touhou
+
+																																splatoon
+
+																																acnh
+
+																																dandys world⭐️
+
+																								----------------------💾-----------------------				
+																															
+                                      💽 -- * 📺 // i suck at socializing , always int first pls // 📺 * -- 💽
+																			          spmtenna shippers dni , and just overall rude people dni
+																	
+
+											
