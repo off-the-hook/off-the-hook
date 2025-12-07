@@ -7,7 +7,18 @@
                                                                   ninah
 
 															   regretevator
-																													
+
+																meleeniacs⭐️
+
+																 touhou
+
+																 acnh
+
+																 splatoon
+												
+												        ------------ 💾----------
+					-- * 💡 i suck at socializing , always int first , spmtenna shprs dni , and overall rude people dni 💡 * --
+														
 																
                                                             
 																					
@@ -19,4 +30,4 @@
 																									            
 																	
 
-											
+									
