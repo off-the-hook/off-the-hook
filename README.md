@@ -1,5 +1,5 @@
 
-16+ dni , homeowner x anyone dni , spmtenna shippers dni
+16+ dni , homeowner x anyone dni , spmtenna shippers dni , i suck at socializing.. always int first 😓
 
 list of fandoms : ( ones marked as ⭐️ im currently hyperfixated on !
 
