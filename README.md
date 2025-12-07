@@ -15,4 +15,8 @@ splatoon
 
 acnh
 
+meleemaniacs
+
+regretevator
+
 and thats it...
