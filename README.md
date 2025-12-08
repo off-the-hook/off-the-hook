@@ -22,7 +22,9 @@
 					-- * 💡 i suck at socializing , always int first , spmtenna shprs dni , and overall rude people dni 💡 * --
 														
 												
-				           ![image](https://github.com/user-attachments/assets/501732e6-fabd-4ef4-95f9-e3cab6c14d13)
+				           ![IMG_1313](https://github.com/user-attachments/assets/4794fbb1-6ff7-4327-bce6-a552980a5db2)
+
+
 
 
 
