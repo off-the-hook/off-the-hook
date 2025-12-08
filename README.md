@@ -21,8 +21,8 @@
 												        ------------ 💾----------
 					-- * 💡 i suck at socializing , always int first , spmtenna shprs dni , and overall rude people dni 💡 * --
 														
- if you have a pony that looks like a low quality bobette with black outlines, bald, black eyeshadow, and the mouth the same color as the skin, please delete it, im not comfy with a random joke skin of mine becoming a ”joke trend"                          
-																					
+ if you have a pony that looks like this, please delete it, im not comfy with a random joke skin of mine becoming a ”joke trend"                                                                
+												       my friend informed me about this									
 																								
                                                               
 ![IMG_1313](https://github.com/user-attachments/assets/4794fbb1-6ff7-4327-bce6-a552980a5db2)
