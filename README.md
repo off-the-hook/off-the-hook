@@ -28,8 +28,10 @@
 ![IMG_1313](https://github.com/user-attachments/assets/4794fbb1-6ff7-4327-bce6-a552980a5db2)
 
 																													   
+![image](https://github.com/user-attachments/assets/a72cb071-50ad-4a9e-b287-e506f2841227)
 																												
-																									            
 																	
+comparison																	
 
 									
+![image](https://github.com/user-attachments/assets/093a522b-09c6-4120-9bc7-055d21f75bcb)
