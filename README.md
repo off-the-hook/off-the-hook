@@ -8,7 +8,7 @@
 
 															   regretevator
 
-																meleeniacs⭐️
+																meleeniacs
 
 																 touhou
 
@@ -16,7 +16,7 @@
 
 																 splatoon
 
-															  dandys world⭐️
+															  dandys world
 												
 												        ------------ 💾----------
 					-- * 💡 i suck at socializing , always int first , spmtenna shprs dni , and overall rude people dni 💡 * --
